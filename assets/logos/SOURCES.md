@@ -1,0 +1,1 @@
+Brand marks: Simple Icons v14 (New Relic, Atlassian, SAP, Samsung); v11 (IBM, Mercedes). Mu Sigma: https://www.mu-sigma.com/wp-content/uploads/2025/10/mu-small-logo.png . Voonik: https://mma.prnewswire.com/media/451933/Voonik_Logo.jpg (company press release). Logos identify employment history; no endorsement implied.
